@@ -1,2 +1,2 @@
 maharlika-wallet
-[MHLK FOUNDATION](https://www.mhlkfoundation.com/lapolinar/)
+[MHLK FOUNDATION](https://www.mhlkfoundation.com/)
